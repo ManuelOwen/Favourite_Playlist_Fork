@@ -28,5 +28,10 @@ N/B>>REMEMBER NOT TO DELETE YOUR BRANCH.
 - Waited - Travis
 - Overflow - Cobbs
 - Goodness - Tasha
-
+##Rhumba(by Kibet Emmanuel)
+-faya Tess
+-papa lolo
+-associe
+-nzele
+-kamasutra
 
